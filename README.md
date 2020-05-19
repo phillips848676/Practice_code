@@ -1,2 +1,2 @@
 # Practice_code
-By Madeleine Phillips
+By Madeleine Mae Phillips
